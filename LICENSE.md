@@ -1,4 +1,4 @@
-# 
+# Enhance Audacity for PC | Audacity for Windows with Audacity for PC | Audacity for Windows custom Effect: pitch-shifting & spectrogram-view, the #1 effect. Includes pitch-shifting
 
 
 
